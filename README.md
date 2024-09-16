@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shan-Jay
 - 👀 I’m interested in music and web developing
-- 🌱 I’m currently learning web developing
+- 🌱 I’m currently work as Digital Marketer and Web Developer
 - 💞️ I’m looking to collaborate on web project
 - 📫 How to reach me 0766050632 on whatsapp
 - 😄 Pronouns: Shan
